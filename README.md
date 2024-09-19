@@ -1,5 +1,5 @@
 # Bypass-Google-Play-Protect
-Bypass Google Play Protect..
+Bypass Google Play Protect
 
 
 How To Bypass Play Protect 2024
